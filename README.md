@@ -30,3 +30,5 @@ A story of awakening through surrender — where love and conscience guide the s
 
 ## Notes
 This project is designed as a cinematic and spiritual concept experience, combining mood, narrative, and worldbuilding into a layered, immersive vision.
+
+Tended by the JESUSBURNING House of 589's: Scroll Scribe (docs) and Garden Keeper.
